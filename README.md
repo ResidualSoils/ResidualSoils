@@ -1,0 +1,2 @@
+🎮 Game Developer
+🐼 ChengDu China
